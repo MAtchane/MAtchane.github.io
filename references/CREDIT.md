@@ -1,2 +1,2 @@
 ### Images
-Main Background: Photo by Sai Kiran Anagani on Unsplash
+Main Background: Photo by Pankaj Patel on Unsplash
